@@ -1,8 +1,8 @@
 ## É hora de agir
 
-Os nossos direitos estão ameaçados, a democracia corre risco e o fascismo avança.
+Os nossos direitos estão ameaçados. Jair Bolsonaro ameaça a democracia.
 
-Antes de agir é preciso se organizar. Por isso a Rede pela Democracia (RD) criou esse manual.
+Mas antes de agir é preciso se organizar. Por isso a **Rede pela Democracia (RD)** criou esse manual.
 
 ### Objetivos
 
