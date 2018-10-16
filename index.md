@@ -2,7 +2,7 @@
 
 Os nossos direitos estão ameaçados. Jair Bolsonaro ameaça a democracia.
 
-Mas antes de agir é preciso se organizar. Por isso a **Rede pela Democracia (RD)** criou esse manual.
+Mas antes de agir é preciso se organizar. Por isso a **Rede pela Democracia (RD)** criou esses manuais.
 
 ### Objetivos
 
